@@ -61,5 +61,5 @@ contribute to real projects, learn from experienced developers, and grow profess
 
 ### 📫 Contact
 - GitHub: https://github.com/Muxammadqodir2003
-- Email: your_email_here
-- LinkedIn: your_linkedin_here
+- Email: aralxanovmuxammadqodir4@gmail.com
+- LinkedIn: www.linkedin.com/in/muxammadqodir-aralxanov-4395a9248
